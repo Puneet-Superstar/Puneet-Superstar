@@ -13,8 +13,8 @@
 ---
 
 ### 🧑‍💻 **Connect With Me**
-- 🌐 Instagram: [@lordpuneet](https://instagram.com/lordpuneet)  
-- 🐦 Twitter: [@superstarPuneet](https://twitter.com/superstarPuneet)  
+- 🌐 Instagram: [@lordpuneet](https://instagram.com/puneetsuper_starrrr)  
+- 🐦 Twitter: [@superstarPuneet](https://twitter.com/PuneetSuper)
 - 📧 Email: pun33tsuperstar@gmail.com  
 - 🏠 Home: Bigg Boss House, One-Day Tenancy.  
 
